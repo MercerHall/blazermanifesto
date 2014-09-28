@@ -1,0 +1,1 @@
+These are my thoughts on how Blazer will take over the world. 
